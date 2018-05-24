@@ -1,1 +1,0 @@
-# YancaNurfairuz.github.io
